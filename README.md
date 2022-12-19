@@ -1,3 +1,4 @@
+![ ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.](https://user-images.githubusercontent.com/120760997/208434498-578c8a97-84fd-4f55-85fc-7ffa52a87864.jpg)
 # ༒ᗯEᒪᑕOᗰE TO ᗰY ᑭᖇOᖴIᒪE༒
 ༻🇨 🇷 🇪 🇦 🇹 🇪 🇩༺
 
@@ -9,7 +10,7 @@
 
 
 ####  ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.
-![ ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.](https://user-images.githubusercontent.com/120760997/208434498-578c8a97-84fd-4f55-85fc-7ffa52a87864.jpg))
+
 
 PC Build & Service 🖥️👨‍🔧 ༒ Laptop Service 💻👨‍🔧 ༒  Electrician 🔌 ༒ Programmer 📊 ༒ Hacker 👨‍💻 ༒ Killer 👿 ༒ Etc.
 
