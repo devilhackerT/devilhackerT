@@ -6,6 +6,7 @@
 👿𝒅𝒆𝒗𝒊𝒍𝒉𝒂𝒄𝒌𝒆𝒓𝑻👿
 <h3 align="center"> Broken💔 Mind🥀 Specialit🤗  </h3>
 
+![Alt text](https://user-images.githubusercontent.com/120760997/208500620-8ad1b6f0-d00a-4c94-bfa3-11f57d6d5f2a.gif)
 
 
 
