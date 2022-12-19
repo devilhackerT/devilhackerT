@@ -1,4 +1,11 @@
-### Hi there 👋
+# ༒ᗯEᒪᑕOᗰE TO ᗰY ᑭᖇOᖴIᒪE༒
+༻🇨 🇷 🇪 🇦 🇹 🇪 🇩༺
+
+## 🔥𝔸𝕓𝕚𝕣 𝔸𝕙𝕞𝕖𝕕 𝕋𝕦𝕙𝕚𝕟🔥
+
+## ࿇ⓈⓉ ⒸⓞⓜⓅⓤⓣⓔⓡ࿇
+
+👿 𝒅𝒆𝒗𝒊𝒍𝒉𝒂𝒄𝒌𝒆𝒓𝑻 👿
 
 <!--
 **devilhackerT/devilhackerT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
