@@ -1,22 +1,37 @@
 ![ ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.](https://user-images.githubusercontent.com/120760997/208434498-578c8a97-84fd-4f55-85fc-7ffa52a87864.jpg)
-# ༒ᗯEᒪᑕOᗰE TO ᗰY ᑭᖇOᖴIᒪE༒
-༻🇨 🇷 🇪 🇦 🇹 🇪 🇩༺
-## 🔥𝔸𝕓𝕚𝕣 𝔸𝕙𝕞𝕖𝕕 𝕋𝕦𝕙𝕚𝕟🔥
-## ࿇ⓈⓉ ⒸⓞⓜⓅⓤⓣⓔⓡ࿇
-👿𝒅𝒆𝒗𝒊𝒍𝒉𝒂𝒄𝒌𝒆𝒓𝑻👿
-- ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
+<h1 align="center">༒ᗯEᒪᑕOᗰE TO ᗰY ᑭᖇOᖴIᒪE༒ </h1>
+<h4 align="center">༻🇨 🇷 🇪 🇦 🇹 🇪 🇩༺</h4>
+<h2 align="center">🔥𝔸𝕓𝕚𝕣 𝔸𝕙𝕞𝕖𝕕 𝕋𝕦𝕙𝕚𝕟🔥</h2>
+<h2 align="center"> ࿇ⓈⓉ ⒸⓞⓜⓅⓤⓣⓔⓡ࿇</h2>
+<h3 align="center"> 👿 𝒅𝒆𝒗𝒊𝒍𝒉𝒂𝒄𝒌𝒆𝒓𝑻 👿</h3>
 <h3 align="center"> Broken💔 Mind🥀 Specialit🤗  </h3>
 
+![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
+- [![GitHub followers](https://img.shields.io/github/followers/devilhackerT.svg?style=social&label=Follow&maxAge=0090900)](https://github.com/Naim75o?tab=followers)
+- ![Profile views](https://gpvc.arturio.dev/devilhackerT)
+- ![Visitor Count](https://profile-counter.glitch.me/devilhackerT/count.svg)
+- ![GitHub metrics](https://metrics.lecoq.io/devilhackerT)
+- ###  ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.
+- ![GitHub stats](https://github-readme-stats.vercel.app/api?username=devilhackerT&show_icons=true)
 ![Alt text](https://user-images.githubusercontent.com/120760997/208500620-8ad1b6f0-d00a-4c94-bfa3-11f57d6d5f2a.gif)
+
+## PC Build & Service 🖥️👨‍🔧 ༒ Laptop Service 💻👨‍🔧 ༒  Electrician 🔌 ༒ Programmer 📊 ༒ Hacker 👨‍💻 ༒ Killer 👿 ༒ Etc.
+# Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛʜᴏɴ2 /ᴘʏᴛʜᴏɴ3 / ʀᴇᴀᴄᴛ / ᴊꜱ / ʜᴛᴍʟ / ᴄꜱꜱ /ᴇᴛᴄ.
+<img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=MohsinTheLegend&layout=compact&theme=chartreuse-dark" />
+
+
+
+
+
 
 [![trophy](https://github-profile-trophy.vercel.app/?username=devilhackerT)](https://github.com/ryo-ma/github-profile-trophy)
 
-####  ɪ ᴀᴍ ɢɪᴛʜᴜʙ ʀᴇᴀᴅᴍᴇ ɢᴇɴᴇʀᴀᴛᴏʀ'ꜱ ᴄʀᴇᴀᴛᴏʀꜱ ࿅ ᴄᴏᴍᴍᴜɴᴅ ࿅ ꜱᴄʀɪᴘᴛ ࿅ ᴀᴘᴘ ࿅ ᴛᴏᴏʟꜱ ࿅ ᴇᴛᴄ.
 
 
-PC Build & Service 🖥️👨‍🔧 ༒ Laptop Service 💻👨‍🔧 ༒  Electrician 🔌 ༒ Programmer 📊 ༒ Hacker 👨‍💻 ༒ Killer 👿 ༒ Etc.
 
-Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛʜᴏɴ2 /ᴘʏᴛʜᴏɴ3 / ʀᴇᴀᴄᴛ / ᴊꜱ / ʜᴛᴍʟ / ᴄꜱꜱ /ᴇᴛᴄ.
+
+
+
 
 - 🔭 I’m currently working on Programming , Software, Creatore,Etc.☣️  
 - 🌱 I’m currently learning Software Build & Development 👨‍💻  
@@ -41,23 +56,20 @@ Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛ
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=devilhackerT)](https://github.com/anuraghazra/github-readme-stats)
 
-![GitHub stats](https://github-readme-stats.vercel.app/api?username=devilhackerT&show_icons=true)  
+  
 
 ![GitHub Activity Graph](https://activity-graph.herokuapp.com/graph?username=devilhackerT)  
 
-![GitHub metrics](https://metrics.lecoq.io/devilhackerT)  
+  
 
 ![GitHub streak stats](https://streak-stats.demolab.com/?user=devilhackerT)  
 
-![Profile views](https://gpvc.arturio.dev/devilhackerT)  
+  
 
 
 
-> MY PROFILE VISITORS :
-![Visitor Count](https://profile-counter.glitch.me/D4rk-B0y/count.svg)
 
-- ![Profile views](https://gpvc.arturio.dev/D4rk-B0y)
-- [![GitHub followers](https://img.shields.io/github/followers/D4RK-B0Y.svg?style=social&label=Follow&maxAge=0090900)](https://github.com/Naim75o?tab=followers)
+
 
 ![Alt text](https://camo.githubusercontent.com/bdc2bf0e7c954ae3cecff56b9712a4411a87c014780b8de8ee050f4f6a3c7b55/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f57686174736170702d626c61636b3f7374796c653d666f722d7468652d6261646765266c6f676f3d7768617473617070)
 
@@ -68,7 +80,7 @@ Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛ
 
 [![GitHub Streak](http://github-readme-streak-stats.herokuapp.com?user=D4rk-B0y=merko&date_format=M%20j%5B%2C%20Y%5D)](https://git.io/streak-stats)
 
-<img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=MohsinTheLegend&layout=compact&theme=chartreuse-dark" />
+
 
 > CONTACT WITH ME :
 <p align="left">
