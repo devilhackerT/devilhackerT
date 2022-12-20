@@ -4,6 +4,7 @@
 ## 🔥𝔸𝕓𝕚𝕣 𝔸𝕙𝕞𝕖𝕕 𝕋𝕦𝕙𝕚𝕟🔥
 ## ࿇ⓈⓉ ⒸⓞⓜⓅⓤⓣⓔⓡ࿇
 👿𝒅𝒆𝒗𝒊𝒍𝒉𝒂𝒄𝒌𝒆𝒓𝑻👿
+- ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
 <h3 align="center"> Broken💔 Mind🥀 Specialit🤗  </h3>
 
 ![Alt text](https://user-images.githubusercontent.com/120760997/208500620-8ad1b6f0-d00a-4c94-bfa3-11f57d6d5f2a.gif)
@@ -49,20 +50,8 @@ Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛ
 ![GitHub streak stats](https://streak-stats.demolab.com/?user=devilhackerT)  
 
 ![Profile views](https://gpvc.arturio.dev/devilhackerT)  
-- ![Alt text](https://github.com/MRVIVEK-CODER/MRVIVEK-CODER/raw/main/Developer.gif)
 
-<!--
-**D4RK-B0Y/D4RK-B0Y** is a âœ¨ _special_ âœ¨ repository because its `README.md` (this file) appears on your GitHub profile.
-Here are some ideas to get you started:
-- ðŸ”­ Iâ€™m currently working on ...
-- ðŸŒ± Iâ€™m currently learning ...
-- ðŸ‘¯ Iâ€™m looking to collaborate on ...
-- ðŸ¤” Iâ€™m looking for help with ...
-- ðŸ’¬ Ask me about ...
-- ðŸ“« How to reach me: ...
-- ðŸ˜„ Pronouns: ...
-- âš¡ Fun fact: ...
--->
+
 
 > MY PROFILE VISITORS :
 ![Visitor Count](https://profile-counter.glitch.me/D4rk-B0y/count.svg)
