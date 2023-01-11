@@ -18,9 +18,9 @@
 
 ## PC Build & Service 🖥️👨‍🔧 ༒ Laptop Service 💻👨‍🔧 ༒  Electrician 🔌 ༒ Programmer 📊 ༒ Hacker 👨‍💻 ༒ Killer 👿 ༒ Etc.
 # Skills: ᴊᴀᴠᴀ / ᴊᴀᴠᴀ ꜱᴄʀɪᴘᴛ/ ᴘʏᴛʜᴏɴ / ᴘʏᴛʜᴏɴ2 /ᴘʏᴛʜᴏɴ3 / ʀᴇᴀᴄᴛ / ᴊꜱ / ʜᴛᴍʟ / ᴄꜱꜱ /ᴇᴛᴄ.
-<img align="center" src="https://github-readme-stats.anuraghazra1.vercel.app/api/top-langs/?username=MohsinTheLegend&layout=compact&theme=chartreuse-dark" />
 
 
+I am a Full Stack Developer with 8+ years of experience in developing enterprise applications and open-source software.
 
 
 
