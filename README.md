@@ -43,25 +43,14 @@
 - 😄 Pronouns: Devil👿  
 - ⚡ Fun fact: Chikna🌶️🔥  
 
-
-
-
-
-
+> CONTACT WITH ME :
+<p align="left">
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/devilhackerT)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/dev-dot-to.svg' alt='dev' height='40'>](https://dev.to/http://oasis.com.global.prod.fastly.net/NGJmZDZhMDE2MjRmZTEzYmRiZjUwZQ==/?type=x2&orders=780549994&auth=NGI1YzQ3OWIwMjNhYmY5MzBkODYyMA==)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/hashnode.svg' alt='dev' height='40'>](#abir_stvai)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/http://oasis.com.global.prod.fastly.net/NGJmZDZhMDE2MjRmZTEzYmRiZjUwZQ==/?type=x15&orders=780549994&auth=NGI1YzQ3OWIwMjNhYmY5MzBkODYyMA==/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg' alt='facebook' height='40'>](https://www.facebook.com/https://www.facebook.com/profile.php?id=100084497646721&mibextid=ZbWKwL)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/abirstvai/)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/@abir_stvai)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/codepen.svg' alt='codepen' height='40'>](https://codepen.io/http://oasis.com.global.prod.fastly.net/NGJmZDZhMDE2MjRmZTEzYmRiZjUwZQ==/?type=ist&orders=780549994&auth=NGI1YzQ3OWIwMjNhYmY5MzBkODYyMA==)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/codesandbox.svg' alt='codesandbox' height='40'>](https://codesandbox.io/u/http://oasis.com.global.prod.fastly.net/NGJmZDZhMDE2MjRmZTEzYmRiZjUwZQ==/?type=xgm-frq&orders=780549994&auth=NGI1YzQ3OWIwMjNhYmY5MzBkODYyMA==)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/youtube.svg' alt='YouTube' height='40'>](https://www.youtube.com/channel/https://youtube.com/@user-fy9tt7zs3t)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/icloud.svg' alt='website' height='40'>](http://oasis.com.global.prod.fastly.net/NGJmZDZhMDE2MjRmZTEzYmRiZjUwZQ==/?type=xx&orders=780549994&auth=MWYwMjI0NzZkMDhmNDVjOWNhYzg4ZQ==)  
 
 <a href='https://archiveprogram.github.com/'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/acbadge.gif' width='40' height='40'></a> <a href='https://docs.github.com/en/developers'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/devbadge.gif' width='40' height='40'></a> <a href='https://github.com/pricing'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/pro.gif' width='40' height='40'></a> <a href='https://stars.github.com/'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/starbadge.gif' width='35' height='35'></a> <a href='https://docs.github.com/en/github/supporting-the-open-source-community-with-github-sponsors'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/sponsorbadge.gif' width='35' height='35'></a> 
 
-> CONTACT WITH ME :
-<p align="left">
 
-
-<a href="https://www.facebook.com/bap.dakbi" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="NILOY.VAU.6" height="30" width="40" /></a>
-
-
-
-[<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/niloy0) <a href="https://github.com/niloy0"></a>
 
 > DATABASE:
 <p>
