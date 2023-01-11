@@ -53,36 +53,6 @@
 
 <a href='https://archiveprogram.github.com/'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/acbadge.gif' width='40' height='40'></a> <a href='https://docs.github.com/en/developers'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/devbadge.gif' width='40' height='40'></a> <a href='https://github.com/pricing'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/pro.gif' width='40' height='40'></a> <a href='https://stars.github.com/'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/starbadge.gif' width='35' height='35'></a> <a href='https://docs.github.com/en/github/supporting-the-open-source-community-with-github-sponsors'><img src='https://raw.githubusercontent.com/acervenky/animated-github-badges/master/assets/sponsorbadge.gif' width='35' height='35'></a> 
 
-
-
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=devilhackerT)](https://github.com/anuraghazra/github-readme-stats)
-
-  
-
-![GitHub Activity Graph](https://activity-graph.herokuapp.com/graph?username=devilhackerT)  
-
-  
-
-![GitHub streak stats](https://streak-stats.demolab.com/?user=devilhackerT)  
-
-  
-
-
-
-
-
-
-![Alt text](https://camo.githubusercontent.com/bdc2bf0e7c954ae3cecff56b9712a4411a87c014780b8de8ee050f4f6a3c7b55/68747470733a2f2f696d672e736869656c64732e696f2f62616467652f57686174736170702d626c61636b3f7374796c653d666f722d7468652d6261646765266c6f676f3d7768617473617070)
-
-> GITHUB STATES :
-<a href="https://github.com/naiyan-official"><img width=550 src="https://github-profile-trophy.vercel.app/?username=niloy0&theme=dracula&no-frame=true&title=Followers,Stars,Commit,Repository,Issues"/></a>
-
-![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=D4RK-B0Y&theme=merko)
-
-[![GitHub Streak](http://github-readme-streak-stats.herokuapp.com?user=D4rk-B0y=merko&date_format=M%20j%5B%2C%20Y%5D)](https://git.io/streak-stats)
-
-
-
 > CONTACT WITH ME :
 <p align="left">
 
@@ -92,14 +62,6 @@
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/niloy0) <a href="https://github.com/niloy0"></a>
-
-</p>
-
-![](https://img.shields.io/badge/<N1LOY_V4U>-<niloy0-H4CK3R>-informational?style=flat&logo=data:image/svg%2bxml;base64,<BASE64_DATA>)
-
-<img src="https://github.com/Voyz/voyz_public/blob/master/databay_promo_vidA_gif_A03.gif" alt="Databay showcase gif" title="Databay showcase gif" width="500"/>
-
-![Alt text](https://github.com/MRVIVEK-CODER/Decompiler/raw/main/106824690-8dd73a00-66ad-11eb-89e2-53e13ac6f594.gif)
 
 > DATABASE:
 <p>
